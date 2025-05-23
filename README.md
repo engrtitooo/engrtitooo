@@ -1,5 +1,5 @@
 ### Eltayeb Mohammed · he/him  
-#### Founder | Fintech Innovator | Senior Mechanical Engineer
+Senior Mechanical Engineer | Fintech Innovator
 
 > "Engineering trust, building financial inclusion."
 
